@@ -22,6 +22,8 @@ Fun Facts:
 - Ich schaue gerne Anime, aber wenn ich die Wahl habe, lese ich lieber Webtoons
 - Frag mich nicht nach meinen Hobbys... sonst sitzen wir hier morgen noch 😆
 
+Kontaktiere mich über LinkedIn!
+
 Schön, dass du vorbeischaust!
 <!--
 **EvaW99/EvaW99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
